@@ -1,1 +1,1 @@
-# Wolfbet
+One of the biggest advantages of playing at an <a href="https://wolfbet.com/">online casino with bitcoin</a> like Wolfbet is the speed and ease of transactions. No bank delays, no bureaucracy—just instant deposits and withdrawals. Combine this with Wolfbet’s cutting-edge games and promotions, and you have the ultimate casino experience.
